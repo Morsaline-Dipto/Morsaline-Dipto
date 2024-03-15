@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data analytics project
 - 📫 my email: mkdipto9@gmail.com ; my mobile: +61452578723 (I live in Sydney, Australia)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I can eat biriyani all day!
+- ⚡ Fun fact: I love to play cricket.
 
 <!---
 Morsaline-Dipto/Morsaline-Dipto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
